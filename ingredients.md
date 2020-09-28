@@ -1,0 +1,4 @@
+bgbg
+ggr
+grbrgb
+gbrb
